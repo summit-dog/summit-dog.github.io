@@ -1,1 +1,0 @@
-# summit-dog.github.io
